@@ -1,16 +1,13 @@
-## Hi there 👋
+# Hi, I'm iyasomed 👋
 
-<!--
-**iyasomed/iyasomed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## About Me
+- Developer
+- Open Source Enthusiast
 
-Here are some ideas to get you started:
+## Skills
+- Python
+- AI
+- Cloud Computing
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Projects
+- My projects here
