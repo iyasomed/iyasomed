@@ -166,53 +166,53 @@ IYASOCARE has developed a comprehensive product portfolio covering smart mobilit
 
 Combining intelligent drive systems, electronic controls, and ergonomic design, IYASOCARE electric wheelchairs provide flexible operation, stable performance, comfortable seating, and reliable mobility support for home care, hospitals, elderly care facilities, and outdoor environments.
 
-## Manual Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Manual Wheelchair](https://www.iyasomed.com/product-category/manual-wheelchair/)
 
 Including standard, lightweight, folding, heavy-duty, and sports models, designed to meet daily mobility, healthcare, and rehabilitation requirements.
 
-## Standing Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Standing Wheelchair](https://www.iyasomed.com/product-category/standing-wheelchair/)
 
 Combining mobility and standing assistance functions, enabling users to transition between sitting and standing positions while supporting rehabilitation training and improving daily independence.
 
-## Stair Climbing Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Stair Climbing Wheelchair](https://www.iyasomed.com/product-category/stair-climbing-wheelchair/)
 
 Equipped with professional stair-climbing technology, providing safer vertical mobility solutions for homes, hospitals, public buildings, and emergency applications.
 
-## Beach Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Beach Wheelchair](https://www.iyasomed.com/product-category/beach-wheelchair/)
 
 Designed with wide flotation tires and corrosion-resistant materials, allowing users to enjoy beaches, snow, grass, and soft terrains with greater freedom.
 
-## Off-Road Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Off-Road Wheelchair](https://www.iyasomed.com/product-category/off-road-wheelchair/)
 
 Built for challenging outdoor environments with powerful drive systems, large off-road tires, and enhanced suspension performance for mountains, forests, mud, and uneven terrain.
 
-## Transfer Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Transfer Wheelchair](https://www.iyasomed.com/product-category/transfer-wheelchair/)
 
 Designed for patient transfer and caregiver assistance, improving efficiency in bed-to-chair transfers, indoor movement, and medical transportation.
 
-## Sport Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Sport Wheelchair](https://www.iyasomed.com/product-category/sport-wheelchair/)
 
 Developed for competitive sports with lightweight frames, high rigidity, and excellent maneuverability, suitable for basketball, tennis, racing, and other professional sports.
 
-## Children Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Children Wheelchair](https://www.iyasomed.com/product-category/children-wheelchair/)
 
 Designed according to children's growth characteristics, featuring adjustable structures to provide safety, comfort, and long-term usability.
 
-## Handcycle[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Handcycle](https://www.iyasomed.com/product-category/handcycle/)
 
 A hand-powered mobility device suitable for rehabilitation training, fitness, and outdoor cycling, helping improve upper-body strength and independent mobility.
 
-## Electric Mobility Scooter[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Electric Mobility Scooter](https://www.iyasomed.com/product-category/electric-mobility-scooter/)
 
 Designed for elderly users and people with limited mobility, offering easy operation, comfortable riding, stable range, and convenient daily transportation.
 
-## Rollator & Walker[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Rollator & Walker](https://www.iyasomed.com/product-category/rollator-walker/)
 
 Including standard walkers, rollators, and multifunctional rehabilitation walking aids, helping users improve balance, walking stability, and daily independence.
 
 ---
 
-# OEM & ODM Solutions
+# [OEM & ODM Solutions](https://www.iyasomed.com/wheelchair-oem-odm/)
 
 With strong R&D capabilities, manufacturing expertise, and supply chain advantages, IYASOCARE provides professional **OEM, ODM, and customized development services** for global partners.
 
