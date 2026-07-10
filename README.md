@@ -162,11 +162,11 @@ The company actively participates in international medical exhibitions, includin
 
 IYASOCARE has developed a comprehensive product portfolio covering smart mobility, rehabilitation assistance, elderly care, outdoor mobility, and professional applications.
 
-## Electric Wheelchair (https://www.iyasomed.com/product-category/electric-wheelchair/)
+## [Electric Wheelchair] (https://www.iyasomed.com/product-category/electric-wheelchair/)
 
 Combining intelligent drive systems, electronic controls, and ergonomic design, IYASOCARE electric wheelchairs provide flexible operation, stable performance, comfortable seating, and reliable mobility support for home care, hospitals, elderly care facilities, and outdoor environments.
 
-## Manual Wheelchair
+## Manual Wheelchair[立即购买](https://www.iyasomed.com/product-category/electric-wheelchair/)
 
 Including standard, lightweight, folding, heavy-duty, and sports models, designed to meet daily mobility, healthcare, and rehabilitation requirements.
 
