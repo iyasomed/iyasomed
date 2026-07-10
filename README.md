@@ -1,7 +1,6 @@
 # IYASOCARE  
 ## Empowering Mobility, Enhancing Life
 
----
 
 # About Us
 
@@ -13,7 +12,6 @@ With years of continuous development, IYASOCARE has become one of the profession
 
 IYASOCARE continuously follows the philosophy of **"Innovation Drives Development, Quality Builds Trust"**, constantly improving products and technologies to help users enjoy safer, more comfortable, and more independent mobility experiences.
 
----
 
 # Our Mission
 
@@ -31,7 +29,6 @@ To become a globally trusted brand in rehabilitation equipment and smart mobilit
 - **Cooperation** — Building Long-Term Partnerships
 - **Customer First** — Understanding and Serving Customer Needs
 
----
 
 # Research & Development  
 ## Innovation Driving Smart Mobility Solutions
@@ -55,7 +52,6 @@ Our development philosophy is centered around real user needs. We study differen
 
 By applying advanced materials such as aluminum alloys, high-strength steel, lightweight structural materials, high-performance lithium battery systems, and intelligent control technologies, IYASOCARE continues to develop competitive mobility solutions for worldwide users and partners.
 
----
 
 # Intelligent Manufacturing  
 ## Professional Manufacturing Ensuring Reliable Quality
@@ -79,7 +75,6 @@ With multiple wheelchair production lines and a mature supply chain system, IYAS
 
 The company also provides **OEM, ODM, and customized development services**, helping global partners create products that meet specific market positioning, regulatory requirements, and customer expectations.
 
----
 
 # Quality Management  
 ## Quality Builds Long-Term Trust
@@ -102,7 +97,6 @@ Each product undergoes comprehensive testing procedures, including:
 
 Through strict quality control procedures, IYASOCARE ensures that every product delivers excellent reliability, safety, durability, and performance in different application environments.
 
----
 
 # International Certifications
 
@@ -136,7 +130,6 @@ Certification confirming products are legally marketed in the country of origin 
 
 A comprehensive certification system demonstrates IYASOCARE's strong quality management capability and enhances our competitiveness in global markets.
 
----
 
 # Global Market & Services
 
@@ -156,7 +149,6 @@ According to different regional regulations, market demands, and customer requir
 
 The company actively participates in international medical exhibitions, including **CMEF China, Western China International Expo, Arab Health Dubai, MEDICA Germany, and Medlab Asia**, continuously presenting innovative products and strengthening communication with global partners.
 
----
 
 # Product Portfolio
 
@@ -210,7 +202,6 @@ Designed for elderly users and people with limited mobility, offering easy opera
 
 Including standard walkers, rollators, and multifunctional rehabilitation walking aids, helping users improve balance, walking stability, and daily independence.
 
----
 
 # [OEM & ODM Solutions](https://www.iyasomed.com/wheelchair-oem-odm/)
 
@@ -228,7 +219,6 @@ Our services include:
 
 We work closely with partners to create market-oriented mobility solutions and support faster expansion into global markets.
 
----
 
 # Global Partnership
 
